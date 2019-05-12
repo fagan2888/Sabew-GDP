@@ -1,2 +1,2 @@
 # Sabew-GDP
-Draft Presentation for April 28 Sabew in DC
+Presentation for April 28, 2018 to the Society for Advancing Business Editing and Writing in Washington, DC
